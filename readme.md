@@ -3,7 +3,7 @@
 
 #### Dragon
 
- ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/0fc55ba1-8250-4522-bfa0-deb032ebaa99_5db5b373.jpg)
+ ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/ad9ace7b-60f6-4ccf-9246-68d5a16fad3f_1a2ba535.jpg)
 
   - _**Lucky numbers:**_ 2, 7; 
 
